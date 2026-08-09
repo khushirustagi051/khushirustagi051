@@ -1,5 +1,5 @@
 # About Me:
-Hi, I am Khushi.<br><br>- CS student at Christ University, BLR, India<br>
+Hi, I am Khushi.<br><br>
 
 
 ## 🌐 Socials:
